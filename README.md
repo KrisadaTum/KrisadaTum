@@ -1,4 +1,4 @@
--สาืดิผดิ 👋 Hi, I’m @KrisadaTum
+
 -Can you help me?
 -what's your name
 -I have something to tell you
